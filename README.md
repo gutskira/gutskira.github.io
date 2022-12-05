@@ -1,1 +1,0 @@
-# gutskira.github.io
